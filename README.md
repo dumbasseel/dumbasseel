@@ -5,7 +5,7 @@
 
    hello! you can call me whatever you want, i dont really care, but eel is preferable if you dont know me.
 
-  ϟ [Strawpage](https://dumbasseel.straw.page)   ϟ [Atabook](https://dumbasseel.atabook.org)     ϟ  [Carrd](https://arches4men.carrd.co)    ϟ[Main Github](https://arches4men.github.com)
+  ϟ [Strawpage](https://dumbasseel.straw.page)   ϟ [Atabook](https://dumbasseel.atabook.org)     ϟ  [Carrd](https://arches4men.carrd.co)    ϟ  [Main Github](https://github.com/arches4men)
 
 i am very shy when first talking to someone, as i dont know what to say. so i will be quiet, sorry
 
