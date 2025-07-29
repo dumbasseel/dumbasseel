@@ -1,7 +1,7 @@
  <div align="center">
 <img width="1200" height="664" alt="image" src="https://github.com/user-attachments/assets/e91632a0-4652-4a5a-a969-1cd1f66d09bc" />
   
-[Image Cred](https://www.tumblr.com/lightlightghost)
+electric eels biggest fan if you couldnt already tell
 
    hello! you can call me whatever you want, i dont really care, but eel is preferable if you dont know me.
 
