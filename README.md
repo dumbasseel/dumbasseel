@@ -13,3 +13,5 @@ i also dont know what to say half of the time so sorry if im really clueless whe
 
 more info is on carrd / strawpage mostly carrd
 ϟ
+
+<img width="1200" height="664" alt="Untitled93_20250730002123" src="https://github.com/user-attachments/assets/f3aa1833-f012-4298-aad9-4405c17fe66b" />
