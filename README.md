@@ -11,8 +11,6 @@
 
   ϟ [Strawpage](https://dumbasseel.straw.page)   ϟ [Atabook](https://dumbasseel.atabook.org)     ϟ  [Carrd](https://arches4men.carrd.co)
 
-ϟ
-
 i am very shy when first talking to someone, as i dont know what to say. so i will be quiet, sorry
 
 i also dont know what to say half of the time so sorry if im really clueless when it comes to things
