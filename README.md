@@ -6,6 +6,7 @@ electric eels n.1 fan if you couldnt already tell
 ϟ ![](https://komarev.com/ghpvc/?username=dumbasseel&color=84398e&label=EELINGS)
 
    hello! you can call me whatever you want, i dont really care, but eel is preferable if you dont know me.
+   
    C+H freely... i dont bite i swear
 
   ϟ [Strawpage](https://dumbasseel.straw.page)   ϟ [Atabook](https://dumbasseel.atabook.org)     ϟ  [Carrd](https://arches4men.carrd.co)    ϟ  [Rentry](https://rentry.co/dumbasseel)
