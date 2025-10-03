@@ -11,7 +11,7 @@ i am very shy when first talking to someone, as i dont know what to say. so i wi
 
 i also dont know what to say half of the time so sorry if im really clueless when it comes to things
 
-![eelings](https://komarev.com/ghpvc/?username=dumbasseel)
+![](https://komarev.com/ghpvc/?username=dumbasseel=PROFILE+VIEWS&color=blueviolet)
 ϟ
 
 <img width="1200" height="664" alt="Untitled93_20250730002123" src="https://github.com/user-attachments/assets/f3aa1833-f012-4298-aad9-4405c17fe66b" />
