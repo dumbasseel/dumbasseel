@@ -7,7 +7,7 @@ electric eels n.1 fan if you couldnt already tell
 
    hello! you can call me whatever you want, i dont really care, but eel is preferable if you dont know me.
    
-   C+H freely... i dont bite i swear
+   sign ata pretty pleas,,.. ill give you a kiss
 
   ϟ [Strawpage](https://dumbasseel.straw.page)   ϟ [Atabook](https://dumbasseel.atabook.org)     ϟ  [Carrd](https://arches4men.carrd.co)    ϟ  [Rentry](https://rentry.co/dumbasseel)
 
