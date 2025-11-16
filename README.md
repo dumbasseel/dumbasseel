@@ -6,10 +6,10 @@ electric eels n.1 fan if you couldnt already tell
 ϟ ![](https://komarev.com/ghpvc/?username=dumbasseel&color=84398e&label=EELINGS)
 
    hello! you can call me whatever you want, i dont really care, but eel is preferable if you dont know me.
+
+   ϟ [Strawpage](https://dumbasseel.straw.page)   ϟ [Atabook](https://dumbasseel.atabook.org)     ϟ  [Carrd](https://arches4men.carrd.co)    ϟ  [Rentry](https://rentry.co/dumbasseel)
    
    sign ata pretty pleas,,.. ill give you a kiss
-
-  ϟ [Strawpage](https://dumbasseel.straw.page)   ϟ [Atabook](https://dumbasseel.atabook.org)     ϟ  [Carrd](https://arches4men.carrd.co)    ϟ  [Rentry](https://rentry.co/dumbasseel)
 
 i am very shy when first talking to someone, as i dont know what to say. so i will be quiet, sorry
 
