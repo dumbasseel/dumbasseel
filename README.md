@@ -8,7 +8,7 @@
 
    *ϟ [Strawpage](https://dumbasseel.straw.page)*   *ϟ [Atabook](https://electriceels.atabook.org)*     *ϟ  [Carrd](https://arches4men.carrd.co)*    *ϟ  [Rentry](https://rentry.co/dumbasseel)*
    
-<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/2a426a0a-325d-45a5-9412-7d5d9885afbf" />
+<img width="100" height="100" alt="image" src=https://github.com/dumbasseel/dumbasseel/blob/c4e57731d9ad7b27bc07d6f0d3963f10f90b073a/IMG_1954.webp />
 
 
  
