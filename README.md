@@ -1,5 +1,5 @@
  <div align="center">
-<img width="850" height="455" alt="image" src="https://github.com/user-attachments/assets/abc2c2fc-37d2-4191-aa9d-86e2306b9076" />
+ <img width="850" height="455" alt=image src=https://github.com/dumbasseel/dumbasseel/blob/c289076f4f0af82c01b53d5c8f30f86cde39d9c4/IMG_1646.png />
 
 <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/87a1e054-d16e-482a-9a42-9ad32ec64158" />
 
