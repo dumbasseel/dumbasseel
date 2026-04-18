@@ -1,7 +1,7 @@
  <div align="center">
  <img width="850" height="455" alt=image src=https://github.com/dumbasseel/dumbasseel/blob/c289076f4f0af82c01b53d5c8f30f86cde39d9c4/IMG_1646.png />
 
-<img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/87a1e054-d16e-482a-9a42-9ad32ec64158" />
+<img width="150" height="150" alt="image" src=https://github.com/dumbasseel/dumbasseel/blob/cd307ee2df6cdb1de92059aaae8929b58e4cbd4f/IMG_1649.png />
 
 
   ϟ ![](https://komarev.com/ghpvc/?username=dumbasseel&color=af7800&label=Eels)
@@ -14,7 +14,7 @@
  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vmmidyg77bheqevj3vuj4kjzum&cover_image=true&theme=novatorem&show_offline=true&background_color=3f084f&interchange=true&profanity=false&bar_color=af7800&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/2a14201a-9294-4099-9198-54f9ce84037f" />
+<img width="150" height="150" alt="image" src=https://github.com/dumbasseel/dumbasseel/blob/cd307ee2df6cdb1de92059aaae8929b58e4cbd4f/IMG_1648.png />
 
 
    *Hello, you can call me Eel if you dont know me since its preferred if i dont know you well enough to give my name.*
