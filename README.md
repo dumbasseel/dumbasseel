@@ -6,7 +6,7 @@
 
   ϟ ![](https://komarev.com/ghpvc/?username=dumbasseel&color=af7800&label=Eels)
 
-   *ϟ [Strawpage](https://dumbasseel.straw.page)*   *ϟ [Atabook](https://electriceels.atabook.org)*     *ϟ  [Carrd](https://arches4men.carrd.co)*    *ϟ  [Rentry](https://rentry.co/dumbasseel)*
+   *ϟ [Strawpage](https://electriceels.straw.page)*   *ϟ [Atabook](https://electriceels.atabook.org)*     *ϟ  [Carrd](https://arches4men.carrd.co)*    
    
 <img width="100" height="100" alt="image" src=https://github.com/dumbasseel/dumbasseel/blob/c4e57731d9ad7b27bc07d6f0d3963f10f90b073a/IMG_1954.webp />
 
